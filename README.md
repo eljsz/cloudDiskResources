@@ -9,4 +9,4 @@ xxx替换成你要搜索的网盘资源
 
 现成网站
 
-http://www662688.xyz
+http://www.662688.xyz
